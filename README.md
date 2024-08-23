@@ -1,4 +1,4 @@
-# Shariq Adnan
+# Hello There 👋
 
 **Location:** Bangalore, India  
 **Contact:** [shariqadnan111@gmail.com](mailto:shariqadnan111@gmail.com)  
